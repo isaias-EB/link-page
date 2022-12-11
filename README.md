@@ -1,0 +1,1 @@
+Este sencillo repositorio es para recopilar en una sola página todos mis enlaces a redes sociales y blogs qne los que escribo
